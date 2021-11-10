@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @amorguettinogueira
+- 👀 I’m interested in innovation, development, blockchain, as well as making money :-)
+- 🌱 I’m currently learning a bit of statistics so I can bring an app to life
+- 💞️ I’m looking to collaborate to evenly distribute the future (William Gibson) :-)))
+- 📫 I welcome you to reach me adriano.m.nogueira@gmail.com if you share same interest and goals
